@@ -19,4 +19,4 @@ This is because human beings, in guiding the handlebars and rotating the pedals,
 Beloved friends, let us ride, and together restart the world!
 
 July the 31st, 2016
-Drafted By Masayuki Akamatsu, Shigeru Matsui, Yasuko Imura, Akira Segawa, Yushi Yashima, Takemi Watanuki, Taiki Yuzawa
+Drafted By Masayuki Akamatsu, Shigeru Matsui, Yasuko Imura, Akira Segawa, Yushi Yashima, Takemi Watanuki, Taiki Yuzawa, Yuki Goto
